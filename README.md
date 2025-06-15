@@ -1,4 +1,4 @@
-# Hi Iam Cassidy Buys
+# Hi I am Cassidy Buys
 
 🧠 Software development student at code space<br>
 🎨 Self taught designer<br>
