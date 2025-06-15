@@ -2,7 +2,7 @@
 
 🧠 Software development student at code space<br>
 🎨 Self taught designer<br>
-📋 I Create conistant web sites that blend art and Web dev<br>
+📋 I am currently learning to  Create conistant web sites that blend art and Web dev<br>
 
 
 ## 🌐 Socials:
